@@ -49,7 +49,7 @@ Driven by a growth-oriented mindset, I embrace technical challenges as opportuni
 ## 📬 Contact
 
 - 📧 Email: [paudelshreeram5151@gmail.com](mailto:paudelshreeram5151@gmail.com)  
-- 🔗 LinkedIn: [linkedin.com/in/shreeram-paudel-51601b365](https://www.linkedin.com/in/shreeram-paudel-51601b365)
+- 🔗 LinkedIn: [linkedin.com/in/shreeram-paudel
 
 ---
 
